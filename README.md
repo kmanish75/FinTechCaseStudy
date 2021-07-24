@@ -6,6 +6,7 @@ Hi I am Manish Kumar. I am a finance Professional.
 
 
 What are your career goals?
+222
 
 I want to be a Fintech professional.
 
